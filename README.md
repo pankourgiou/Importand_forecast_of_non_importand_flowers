@@ -3,3 +3,4 @@
 
 A cactus as a connection method...we are not alone.
 My mother talks we flowers...she is good at precognition-->proof of concept my mother!
+check also here-->https://www.skai.gr/news/technology/dentra-me-diastimiko-parelthon-to-diastima-stin-kathimerinotita-ton-politon
